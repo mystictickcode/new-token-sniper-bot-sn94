@@ -1,4 +1,4 @@
-# 
+# Get the ultimate new token sniper bot with custom new token sniper bot | take-profit + liquidity-sniping. Featuring take-profit and liquidity-sniping, it's the best choice for
 
 
 
